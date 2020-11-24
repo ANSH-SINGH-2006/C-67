@@ -1,2 +1,2 @@
 **story**
-Once upon a time in a forest, there lived a monkey on a jamun tree, which was on a bank of a river. In the same forest, there lived a crocodile and his wife....
+Once upon a time in a forest, there lived a monkey on a jamun tree, which was on a bank of a river. In the same forest, there lived a crocodile and his wife.... The monkey wanted to make a cloth for himself using crocodile skin. He slowly started trying to befriend the crcodile by feeding him berries. They were delcious and crocodile liked it. After sometime, the monkey started poisning the berries.
